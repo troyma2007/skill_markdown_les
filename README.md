@@ -3,6 +3,7 @@
 ![CHILICONCARNE](https://www.24kitchen.nl/files/styles/social_media_share/public/2019-10/shutterstock_1192492630.jpg?itok=RCqTgyci)
 
 **_Bereidingsweize_**
+
 _#1_ Pel en snipper de ui. Pel en hak de knoflook. Verwijder de zaadlijst uit de peper uit snijd in kleine stukjes. Verwijder de zaadlijst van de paprika en snijd in blokjes. Verwijder het vel van de chorizo en snijd in blokjes.
 
 _#2_ Verhit olie in een pan. Fruit de ui, knoflook en chorizo. Voeg het gehakt toe en rul dit op hoog vuur.
